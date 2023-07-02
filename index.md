@@ -36,7 +36,10 @@ Je však i několik věcí, které bychom tě chtěli poprosit nedělat:
 * Také se prosím vyvaruj složitějších témat (v každé rodině nějaká máme), jak i tématu dětí (opět, nevíš kdy to budou číst a může to nevypálit dobře).
 * Předci jen půjde o obálku – prosím nevkládej jiné věci než ploché (list, fotografie a pod.).
 
+## Otevírací podmínky
+
 Jako otevírací podmínku pro svůj dopis si vyber jednu z následujících. Nemusíš se ji držet striktně, klidně si ji uprav, aby vyhovovala tobě i novomanželům, jak je znáš. Když si vybereš, dej nám vědět, kterou sis vybral, abychom ji mohli vyškrtnout pro ostatní.
+
 * Až se vrátíte ze svatební cesty
 * 100 dní od svatby
 * Na první výročí svatby
